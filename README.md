@@ -1,2 +1,0 @@
-# hitam-
-Tetap berusaha
